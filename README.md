@@ -14,3 +14,6 @@
 3. دوس "تثبيت".
 
 📞 تليفون وواتساب: 01130179799 — 🌐 https://eltafakshy.com
+
+## تطبيق المندوب (مندوب التفكشي)
+للمناديب بس: [تحميل eltafakshy-driver.apk](https://github.com/tafakshy00-boop/eltafakshy-app/raw/main/eltafakshy-driver.apk)
